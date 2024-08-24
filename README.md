@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @zloxnot
+- 👀 I’m interested in ... sports, fitness, rap, gaming
+- 🌱 I’m currently learning ... building/modeling
+- 📫 How to reach me ... https://linktr.ee/zloxnot
+- 😄 Pronouns: ... he/him
+- ⚡ Fun fact: ... I have 2 ex's
